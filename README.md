@@ -1,1 +1,1 @@
-# Parciales-de-estructura-(9)
+# Parciales-de-estructura-( ejercicio 9)
